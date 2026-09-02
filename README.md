@@ -30,4 +30,4 @@ When I’m not writing code, you’ll probably find me mixing tracks, trying new
 ### 🧠 Productivity
 ![Etc](https://skillicons.dev/icons?i=obsidian,notion,discord)
 
-📫 Reach me: [Telegram](https://t.me/dmitriy_omin) • [LinkedIn](https://www.linkedin.com/in/dmitriy-omin-3a6119379)
+📫 Reach me: [Telegram](https://t.me/everchaser)
